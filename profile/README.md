@@ -1,4 +1,4 @@
-# **Yeh Rishta Kya Kehlata Hai – Written Review of January 1, 2025 Episode**
+# **Yeh Rishta Kya Kehlata Hai 2025 New Episodes**
 
 [**Yeh Rishta Kya Kehlata Hai today full episode watch now ►►►**](https://bgreatblog.blogspot.com/2025/01/yeh-rishta-kya-kehlata-hai-written.html)
 
